@@ -1,4 +1,7 @@
 # z-life-lessons (PRs are welcomed)
+---
+Listing all my life lessons, hoping it will be beneficial to my coming generations and all.
+
 ## Life lessons
 
 1. Don't just read these lessons, apply when feel appropriate.
