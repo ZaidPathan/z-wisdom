@@ -14,3 +14,4 @@ Listing all my life lessons, hoping it will be beneficial to my coming generatio
 1. Before scrolling online, ask yourself if you could be doing something better.
 1. Eat 1/3 stomach or only which is necessary.
 1. Know your limits.
+1. Unnecessary scrolling closes your mind, keep it open by reducing screentime to only necessary tasks.
