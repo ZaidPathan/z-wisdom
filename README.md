@@ -3,6 +3,7 @@ Listing all my life lessons, hoping it will be beneficial to my coming generatio
 
 ## Life lessons
 
+1. Be very wise about your time utilization, else you could miss your prayers on time.
 1. Don't just read these lessons, apply when feel appropriate.
 1. Time is the most precious gift you have, use it very wisely.
 1. Work based on your role, don't cross that boundry else it could cause damages.
