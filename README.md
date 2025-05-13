@@ -20,3 +20,4 @@ Listing all my life lessons, hoping it will be beneficial to my coming generatio
 1. Reduce suger consumption, only have essential.
 1. To achieve great goals, focus is essential.
 1. Speak gently and wisely—avoid words that may hurt others, even indirectly.
+1. Love can't be bought.
