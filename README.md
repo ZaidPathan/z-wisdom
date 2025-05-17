@@ -1,8 +1,10 @@
 # z-life-lessons (PRs are welcomed)
 Listing all my life lessons, hoping it will be beneficial to my coming generations and all.
 
-## Life lessons
+## Life lessons - Values & Legacy
 
+1. Follow Allah (The God) & his Messenger(ﷺ).
+1. Define & follow your values.
 1. Be very wise about your time utilization planning, else you could miss your prayers on time.
 1. Don't just read these lessons, apply when feel appropriate.
 1. Time is the most precious gift you have, use it very wisely.
