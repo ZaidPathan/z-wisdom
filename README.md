@@ -27,3 +27,4 @@ Listing all my life lessons, hoping it will be beneficial to my coming generatio
 1. Be soft spoken.
 1. Never do brain work beyond the capacity, avoid scrolling, gaming which causes heavy pain.
 1. Always book and timebox all tasks & calls.
+1. Have more dedicated time for brainstorming on each important project or task.
