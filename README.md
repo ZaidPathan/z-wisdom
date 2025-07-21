@@ -29,3 +29,4 @@ Listing all my life lessons, hoping it will be beneficial to my coming generatio
 1. Always book and timebox all tasks & calls.
 1. Have more dedicated time for brainstorming on each important project or task.
 1. When you disagree with someone, then have patience, wisdom and put your point gently without getting a person offended or demotivated.
+1. Stay hydrated.
