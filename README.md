@@ -31,3 +31,4 @@ Listing all my life lessons, hoping it will be beneficial to my coming generatio
 1. When you disagree with someone, then have patience, wisdom and put your point gently without getting a person offended or demotivated.
 1. Stay hydrated.
 1. Don't give opinion without being explicitly asked.
+1. Leave every shallow work/act like watching reels, social media scroll etc. Always work on deep tasks whether it's planning, building, learning or anything.
