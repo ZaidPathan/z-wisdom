@@ -1,9 +1,10 @@
 # z-wisdom (PRs are welcomed)
-Listing all my life lessons, hoping it will be beneficial to my coming generations and all.
+Listing all my life wisdoms, hoping it will be beneficial to my coming generations and all.
 
-## Life lessons - Values & Legacy
+## Life wisdom - Values & Legacy
 
 1. Follow Allah (The God) & his Messenger(ﷺ).
+1. Value your and other's time, while having a discussion ask if a person wants an overview or in depth information.
 1. Define & follow your values.
 1. Be very wise about your time utilization planning, else you could miss your prayers on time.
 1. Don't just read these lessons, apply when feel appropriate.
