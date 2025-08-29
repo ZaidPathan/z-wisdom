@@ -1,4 +1,4 @@
-# z-life-lessons (PRs are welcomed)
+# z-wisdom (PRs are welcomed)
 Listing all my life lessons, hoping it will be beneficial to my coming generations and all.
 
 ## Life lessons - Values & Legacy
