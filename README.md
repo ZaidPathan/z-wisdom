@@ -38,3 +38,4 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 1. When someone blames you, don't just accept it without finding the truth, be just even if it's good for you or against you.
 1. Be wise and try to get things done in a single shot or lesser possible shots.
 1. When you procrastinate or do worthless things, think about what will be the outcome if you do that thing for your entire life.
+1. In important big meetings, first understand the hierarchi, and talk wisely with that in mind.
