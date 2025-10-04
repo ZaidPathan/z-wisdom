@@ -3,7 +3,8 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 
 ## Life wisdom - Values & Legacy
 
-1. Follow Allah (The God) & his Messenger(ﷺ).
+1. This world is tool to acquire succes in the hereafter, use it wisely.
+1. Follow Allah (The God) & his Messenger(ﷺ). 
 1. Never take food back or stop anyone from eating.
 1. Value your and other's time, while having a discussion ask if a person wants an overview or in depth information.
 1. Define & follow your values.
