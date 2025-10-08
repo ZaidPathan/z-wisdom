@@ -3,6 +3,7 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 
 ## Life wisdom - Values & Legacy
 
+1. Never scold anyone in front of anyone except extremely needed.
 1. Never let your nafs (evil) win over your soul (angel).
 1. This world is tool to acquire succes in the hereafter, use it wisely.
 1. Follow Allah (The God) & his Messenger(ﷺ). 
