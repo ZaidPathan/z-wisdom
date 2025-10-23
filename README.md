@@ -3,7 +3,7 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 
 ## Life wisdom - Values & Legacy
 
-1. Never ever remind others about the favors you've done to them, even if they're ungrateful.
+1. Never ever remind others about the favors you've done to them, even if they're ungrateful. You did good to please your lord only, no one else.
 1. Don't be harsh, be gentle, specially on kids.
 1. Never scold anyone in front of anyone except extremely needed.
 1. Never let your nafs (evil) win over your soul (angel).
