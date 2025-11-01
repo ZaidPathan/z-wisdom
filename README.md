@@ -3,6 +3,7 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 
 ## Life wisdom - Values & Legacy
 
+1. Never let your emotions make you take wrong actions or stop you from doing good actions.
 1. Devil can't beat act done with sincerity and a sincere one.
 1. Detach from all feelings from this world and people, and sincerely seek love of your Creator only.
 1. Never ever remind others about the favors you've done to them, even if they're ungrateful. You did good to please your lord only, no one else.
