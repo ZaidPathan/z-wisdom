@@ -1,4 +1,4 @@
-# z-wisdom (PRs are welcomed)
+# z-wisdom
 Listing all my life wisdoms, hoping it will be beneficial to my coming generations and all.
 
 ## Life wisdom - Values & Legacy
