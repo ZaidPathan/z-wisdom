@@ -3,6 +3,7 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 
 ## Life wisdom - Values & Legacy
 
+1. Give preference to prayer and consistency, everything else will be taken cared of.
 1. Be a slave of none except The Almighty, keep your constant watch on it.
 1. Don't be comfortable with anything, keep pushing limits to the next level with best of your abilities.
 1. Your attention is the most valuable asset you have, use it wisely.
