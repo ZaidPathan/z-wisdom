@@ -43,6 +43,7 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 1. Love can't be bought.
 1. Bath at earliest possible time after waking up.
 1. Be soft spoken.
+1. Take jokes lightly.
 1. Never do brain work beyond the capacity, avoid scrolling, gaming which causes heavy pain.
 1. Always book and timebox all tasks & calls.
 1. Have more dedicated time for brainstorming on each important project or task.
