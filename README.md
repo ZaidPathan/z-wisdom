@@ -50,6 +50,7 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 1. Have more dedicated time for brainstorming on each important project or task.
 1. When you disagree with someone, then have patience, wisdom and put your point gently without getting a person offended or demotivated.
 1. Stay hydrated.
+1. Never assume bad about your brother, and speak about your assumptions publicly.
 1. Don't give opinion without being explicitly asked.
 1. Leave every shallow work/act like watching reels, social media scroll etc. Always work on deep tasks whether it's planning, building, learning or anything.
 1. When someone blames you, don't just accept it without finding the truth, be just even if it's good for you or against you.
