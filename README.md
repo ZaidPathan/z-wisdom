@@ -8,6 +8,7 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 1. Be a slave of none except The Almighty, keep your constant watch on it.
 1. Don't be comfortable with anything, keep pushing limits to the next level with best of your abilities.
 1. Your attention is the most valuable asset you have, use it wisely.
+1. Protect all kinds of information wisely, no matter who requests it.
 1. Stop scrolling/playing and start building.
 1. Don't worry about the outcome, do your best and then out your trust in Allah (The God).
 1. Never overpromise and underdeliver, promise less, deliver more.
