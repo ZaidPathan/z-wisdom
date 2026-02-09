@@ -3,6 +3,7 @@ Listing all my life wisdoms, hoping it will be beneficial to my coming generatio
 
 ## Life wisdom - Values & Legacy
 
+1. Your brain is like a vehicle, context is like roads; switch context after slowing down to avoid mental harm and fatigue.
 1. Speak clearly, practice before you speak.
 1. Give preference to prayer and consistency, everything else will be taken cared of.
 1. Be a slave of none except The Almighty, keep your constant watch on it.
